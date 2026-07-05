@@ -6,7 +6,8 @@
   
 <p align="center">  $\color{#e671ac}{\textsf{amie rose ID!!}}$
 
-<p align="center">
+<p align="center"><img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/ae87723d-ddf0-4e69-933b-3685795f1d82" />
+
 
 <p align="center">$\color{#f0567b}{\textsf{thirteen !}}$
 
