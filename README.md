@@ -1,6 +1,6 @@
 <p align="center">
 
-                         ![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Yuyu&pause=1000&color=F7516E&width=435&lines=caseoh+and+coryxkenshin+fan;number+1+simpleton;i+absolutely+hate+fruit+ninja..+it+ended+my+22938+year+marriage.%2Fsilly;im+never+on+discord+broo)
+                    ![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Yuyu&pause=1000&color=F7516E&width=435&lines=I+shine+only+with+the+light+you+gave+me+!)
 
                   ![](https://files.catbox.moe/x3vjlf.png) 
 
