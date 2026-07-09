@@ -1,6 +1,6 @@
 <p align="center">
 
-                    ![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Yuyu&pause=1000&color=F7516E&width=435&lines=I+shine+only+with+the+light+you+gave+me+!)
+                      ![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Yuyu&pause=1000&color=F7516E&width=435&lines=I+shine+only+with+the+light+you+gave+me+!)
 
                   ![](https://files.catbox.moe/x3vjlf.png) 
 
