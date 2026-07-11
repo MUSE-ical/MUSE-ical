@@ -8,7 +8,7 @@
   
 <p align="center">$\color{#F76093}{\textsf{Amie}}$ $\color{#ff4f70}{\textsf{Rose}}$ $\color{#e671ac}{\textsf{ID}}$ $\color{#F7516E}{\textsf{! !}}$
 
-                               ![](https://64.media.tumblr.com/443eaff1dfe3a40332306b2ea8a971d0/5f421c24951cd114-c0/s75x75_c1/1591be349ecadbbc6ee4736497af5d4dcac8d9de.gif)
+                              ![](https://64.media.tumblr.com/443eaff1dfe3a40332306b2ea8a971d0/5f421c24951cd114-c0/s75x75_c1/1591be349ecadbbc6ee4736497af5d4dcac8d9de.gif)
 
 
 <p align="center">$\color{#f0567b}{\textsf{thirteen !}}$
