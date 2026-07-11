@@ -14,9 +14,9 @@
      <tr>
        <td>
          <br>
-<p align="center">$\color{#2A319C}{\textsf{Miles}}$  $\color{#194e6f}{\textsf{"Tails"}}$ $\color{#d28264}{\textsf{Prower's read me!}}$ $\color{#194e6f} 
+<p align="center">$\color{#2A319C}{\textsf{Miles}}$  $\color{#194e6f}{\textsf{"Tails"}}$ $\color{#d28264}{\textsf{Prower's read me!}}$
 
-![](https://files.catbox.moe/5pxrlw.png)
+  ![](https://files.catbox.moe/5pxrlw.png)
 
 <p align="center">$\color{#2A319C}{\textsf{thirteen and a trad/digital artist with a love for photography !!}}$
   <p align="center">$\color{#194e6f}{\textsf{mostly offtab or spying on people on pt!! 👀👀👀}}$ 
