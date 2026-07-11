@@ -14,7 +14,7 @@
      <tr>
        <td>
          <br>
-<p align="center">$\color{#2A319C}{\textsf{Tails}}$  $\color{#194e6f}{\textsf{Reverie}}$ $\color{#d28264}{\textsf{Prower}}$
+<p align="center">$\color{#2A319C}{\textsf{Miles}}$  $\color{#194e6f}{\textsf{"Tails"}}$ $\color{#d28264}{\textsf{Prower's}}$ $\color{#194e6f} {\textsf{Re}}$$\color{#2A319C} {\textsf{ad}}$$\color{#d28264}{\textsf{me}}$ 
 
 ![](https://files.catbox.moe/5pxrlw.png)
 
