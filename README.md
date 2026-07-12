@@ -39,8 +39,8 @@
 
   ![](https://files.catbox.moe/5pxrlw.png)
 
-  <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Unkempt&pause=1000&color=DCAF64&width=435&lines=Things+I+like+!!" alt="Typing SVG" /></a>
- <p align="center">$\color{#dcaf64}{\textsf{i really love flowers..}}$
-  <p align="center">$\color{#2A319C}{\textsf{I love rocks, gems, and anything i can get my hands on}}$ 
-    <p align="center">$\color{#194e6f}{\textsf{I love sweets, home-made bread, home-made donuts, etc!!}}$ 
-  <p align="center">$\color{#dcaf64}{\textsf{I have a deep fascination for fossils..}}$
+  <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Unkempt&pause=1000&color=DCAF64&width=435&lines=What+a+lovely+day+to+go+outside!!" alt="Typing SVG" /></a>
+ <p align="center">$\color{#dcaf64}{\textsf{i really love flowers!! like lupines, ranunculus, larkspur, and so many more!!}}$
+  <p align="center">$\color{#2A319C}{\textsf{I love rocks, gems, and i love collecting them too!! they're so amazing!!}}$ 
+    <p align="center">$\color{#194e6f}{\textsf{I love sweets, home-made bread, home-made donuts, and wtv my momma makes..}}$ 
+  <p align="center">$\color{#dcaf64}{\textsf{I have a deep fascination for fossils, and the earths natural beauty!!!}}$
