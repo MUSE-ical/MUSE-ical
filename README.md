@@ -20,13 +20,13 @@
 
 <p align="center">$\color{#2A319C}{\textsf{thirteen and a trad/digital artist with a love for photography !!}}$
   <p align="center">$\color{#194e6f}{\textsf{mostly offtab or spying on people on pt!! 👀👀👀}}$ 
-    <p align="center">$\color{#d28264}{\textsf{siblings with @ghastlyknight + @VintageNight!!}}$
+    <p align="center">$\color{#d28264}{\textsf{my left and right hand men that are underpaid @ghastlyknight + @VintageNight!!}}$
     
   ![](https://files.catbox.moe/5pxrlw.png)
 
 <p align="center">$\color{#d28264}{\textsf{im an ID of Amy Rose, Tails, Cream, Tripwire, Indigo, etc unfortunately..}}$
   <p align="center">$\color{#2A319C}{\textsf{my roblox username is @popandsqueeze-lol and im proud of it !!}}$ 
-    <p align="center">$\color{#194e6f}{\textsf{im such an amazing person, every1 should int w/ me cause im so cool1!}}$
+    <p align="center">$\color{#194e6f}{\textsf{my pronouns page and my strawpage hold the answers to life..}}$
 
  ![](https://files.catbox.moe/5pxrlw.png)
  
