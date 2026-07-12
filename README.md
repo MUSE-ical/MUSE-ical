@@ -1,10 +1,6 @@
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Unkempt&size=30&pause=1000&color=2A319C&width=435&lines=welcome+2+my+readme+goober+!!" alt="Typing SVG" /></a>
   
                   ![](https://files.catbox.moe/54b99o.png) 
-<p align="center"><img width="83" height="18" alt="image" src="https://github.com/user-attachments/assets/5c71f0aa-a5f7-4d67-b415-f1a52a570f99" />
- <img width="39" height="18" alt="image" src="https://github.com/user-attachments/assets/085cc0f4-48e7-4c4e-b565-41d993a13da2" /> <img width="46" height="18" alt="image" src="https://github.com/user-attachments/assets/17e9e550-07e7-48f1-9c84-34dec0dc5443" /> <img width="66" height="18" alt="image" src="https://github.com/user-attachments/assets/35238086-c36f-44d3-81ee-6c301eb13a8a" />
-
-<p align="center"><img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/4214441e-8985-4238-a0ce-ae7fa69ef228" /> <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/2e062102-9fb5-4196-90f6-ca35c4567408" /> <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/50c4d51a-11b8-4e9d-9545-13fb88258e72" />
 
 
 
