@@ -32,5 +32,5 @@
  
  <p align="center">$\color{#194e6f}{\textsf{block tales characters i love!!}}$
                        
-  ![](https://static.wikia.nocookie.net/block-tales/images/3/36/Calypso.gif/revision/latest?cb=20250609114208) ![](https://static.wikia.nocookie.net/block-tales/images/2/2c/GrieferTransparentGIF.gif/revision/latest?cb=20241107152725) ![](https://static.wikia.nocookie.net/block-tales/images/a/aa/Captain_Trotter.GIF/revision/latest?cb=20250618145955)
-  <p align="center">$\color{#2A319C}{\textsf{would've added mayor thaniyel but he was too big..}}$ 
+  ![](https://static.wikia.nocookie.net/block-tales/images/3/36/Calypso.gif/revision/latest?cb=20250609114208) ![](https://static.wikia.nocookie.net/block-tales/images/2/2c/GrieferTransparentGIF.gif/revision/latest?cb=20241107152725) ![](https://static.wikia.nocookie.net/block-tales/images/9/97/MayorThaniyel.gif/revision/latest?cb=20250603083353)
+  <p align="center">$\color{#2A319C}{\textsf{would've added hatred but idk about that one}}$ 
