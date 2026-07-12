@@ -23,7 +23,7 @@
      <tr>
        <td>
          <br>
-<p align="center">$\color{#2A319C}{\textsf{Miles}}$  $\color{#194e6f}{\textsf{"Tails"}}$ $\color{#d28264}{\textsf{Prower's read me!}}$
+<p align="center">$\color{#2A319C}{\textsf{Check}}$  $\color{#194e6f}{\textsf{my}}$ $\color{#d28264}{\textsf{Pronouns}}$ $\color{#dcaf64}{\textsf{Page!}}$
 
   ![](https://files.catbox.moe/5pxrlw.png)
 
@@ -33,7 +33,7 @@
     
   ![](https://files.catbox.moe/5pxrlw.png)
 
-<p align="center">$\color{#d28264}{\textsf{im an ID of Amy Rose, Tails, Cream, Tripwire, Indigo, etc unfortunately..}}$
+<p align="center">$\color{#dcaf64}{\textsf{im an ID of Amy Rose, Tails, Cream, Tripwire, Indigo, etc unfortunately..}}$
   <p align="center">$\color{#2A319C}{\textsf{my roblox username is @popandsqueeze-lol and im proud of it !!}}$ 
     <p align="center">$\color{#194e6f}{\textsf{my pronouns page and my strawpage hold the answers to life..}}$
 
