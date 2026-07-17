@@ -32,4 +32,4 @@
 <p align="center">$\color{#f90343}{\textsf{TH1RT33N !! 1NFP !! }}$
 <p align="center">$\color{#76ff00}{\textsf{4RT1ZT !! CHR0N1C4LLY 0NL1N3-}}$
 <p align="center">$\color{#f90343}{\textsf{n3ur0d1v3rg3nt!! ;-;}}$
-<p align="center">$\color{#76ff00}{\textsf{4lw4yz 1wc4r3.. 1m 4 b1t 0f 4 r0l3pl4y3r..}}$
+<p align="center">$\color{#76ff00}{\textsf{4lw4yz 14y0r.. 1m 4 b1t 0f 4 r0l3pl4y3r..}}$
