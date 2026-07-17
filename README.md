@@ -31,5 +31,5 @@
 <p align="center">$\color{#76ff00}{\textsf{1NF3CT3D   //   3V3 !!}}$
 <p align="center">$\color{#f90343}{\textsf{TH1RT33N !! 1NFP !! }}$
 <p align="center">$\color{#76ff00}{\textsf{4RT1ZT !! CHR0N1C4LLY 0NL1N3-}}$
-<p align="center">$\color{#f90343}{\textsf{wh0 1z @V1nt4g3N1ght ?? n3v3r h34rd 0f th3m!! ;-;}}$
-<p align="center">$\color{#76ff00}{\textsf{ur c00l dud3 @ghastlyknight !!}}$
+<p align="center">$\color{#f90343}{\textsf{n3ur0d1v3rg3nt!! ;-;}}$
+<p align="center">$\color{#76ff00}{\textsf{4lw4yz 1wc4r3.. 1m 4 b1t 0f 4 r0l3pl4y3r..}}$
