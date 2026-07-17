@@ -1,6 +1,8 @@
-<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Unkempt&size=30&pause=1000&color=2A319C&width=435&lines=welcome+2+my+readme+goober+!!" alt="Typing SVG" /></a>
+<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Unkempt&size=30&pause=1000&color=fc0f4e&width=435&lines=my+siblings+are+brain+dead+!!+</33" alt="Typing SVG" /></a>
   
-                  ![](https://files.catbox.moe/54b99o.png) 
+<p align="center"><img width="1000" height="639" alt="image" src="https://github.com/user-attachments/assets/b7de5607-b321-4409-a8e2-49176c0cbde8" />
+
+![](https://64.media.tumblr.com/838fbad02d66e2aa1ddffd66901e22cb/45df70cb40fc600d-ff/s2048x3072/c56c809ff8bab17607110a3f4b9457e6c0dc6ddc.gifv)
 
 
 
@@ -19,25 +21,15 @@
      <tr>
        <td>
          <br>
-<p align="center">$\color{#2A319C}{\textsf{Check}}$  $\color{#194e6f}{\textsf{my}}$ $\color{#d28264}{\textsf{Pronouns}}$ $\color{#dcaf64}{\textsf{Page}}$ $\color{#d28264}{\textsf{for}}$ $\color{#194e6f}{\textsf{more}}$ $\color{#2A319C}{\textsf{info!!}}$
 
-  ![](https://files.catbox.moe/5pxrlw.png)
+<p align="center">
 
-<p align="center">$\color{#2A319C}{\textsf{thirteen and a trad/digital artist with a love for photography !!}}$
-  <p align="center">$\color{#194e6f}{\textsf{mostly offtab or spying on people on pt!! 👀👀👀}}$ 
-    <p align="center">$\color{#d28264}{\textsf{my left and right hand men that are underpaid @ghastlyknight + @VintageNight!!}}$
-    
-  ![](https://files.catbox.moe/5pxrlw.png)
+![](https://files.catbox.moe/lb6vd8.png)
 
-<p align="center">$\color{#dcaf64}{\textsf{im an ID of Amy Rose, Tails, Cream, Tripwire, Indigo, and etc unfortunately.. idm doubles tho!!}}$
-  <p align="center">$\color{#2A319C}{\textsf{my roblox username is @popandsqueeze-lol and im proud of it !!}}$ 
-    <p align="center">$\color{#194e6f}{\textsf{my pronouns page and my strawpage hold the answers to life..}}$ 
 
-  ![](https://files.catbox.moe/5pxrlw.png)
-
-  <p align="center">$\color{#d28264}{\textsf{MORE INFO ABOUT ME!! YAY!!}}$
- 
- <p align="center">$\color{#dcaf64}{\textsf{i really love flowers!! like lupines, ranunculus, larkspur, and so many more!!}}$
-  <p align="center">$\color{#2A319C}{\textsf{I love rocks, gems, and i love collecting them too!! they're so amazing!!}}$ 
-    <p align="center">$\color{#194e6f}{\textsf{I love sweets, home-made bread, home-made donuts, and wtv my momma makes..}}$ 
-  <p align="center">$\color{#d28264}{\textsf{I have a deep fascination for fossils, and the earths natural beauty!!!}}$
+<p align="center">$\color{#f90343}{\textsf{'' 1 P4RTY L1K3 1M 21 !! ,, }}$
+<p align="center">$\color{#76ff00}{\textsf{1NF3CT3D   //   3V3 !!}}$
+<p align="center">$\color{#f90343}{\textsf{TH1RT33N !! 1NFP !! }}$
+<p align="center">$\color{#76ff00}{\textsf{4RT1ZT !! CHR0N1C4LLY 0NL1N3-}}$
+<p align="center">$\color{#f90343}{\textsf{wh0 1z @V1nt4g3N1ght ?? n3v3r h34rd 0f th3m!! ;-;}}$
+<p align="center">$\color{#76ff00}{\textsf{ur c00l dud3 @ghastlyknight !!}}$
