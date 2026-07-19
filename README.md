@@ -29,4 +29,14 @@
 <p align="center">${\textsf{\color{#56a43a}paranoid + bpd . . . }}$
 <p align="center">${\textsf{\color{#aa5e61}semi-active nowadays . . .}}$
 <p align="center">${\textsf{\color{#56a43a}sort of an artist? idk..}}$
-<p align="center">${\textsf{\color{#aa5e61}more information will be added when i feel like it..}}$
+
+<p align="center">
+
+![](https://files.catbox.moe/111728.png)
+
+<p align="center">${\textsf{\color{#56a43a}info dump !!}}$
+<p align="center">${\textsf{\color{#aa5e61}i dont respond well to compliments..}}$
+<p align="center">${\textsf{\color{#56a43a}i get attached really easily despite me saying i dont..}}$
+<p align="center">${\textsf{\color{#aa5e61}i can randomly be very active and talk a lot but its very rare for it to last..}}$
+<p align="center">${\textsf{\color{#56a43a}i tend to go on a break at every start of the year.. its just a habit.}}$
+<p align="center">${\textsf{\color{#aa5e61}i have serious short term memory loss and i probably wont remember you so remind me please!}}$
