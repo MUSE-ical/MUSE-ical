@@ -30,9 +30,12 @@
 <p align="center">${\textsf{\color{#aa5e61}semi-active nowadays . . .}}$
 <p align="center">${\textsf{\color{#56a43a}sort of an artist? idk..}}$
 
-<p align="center">
+<p align="center"><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/4b594ad1-90fb-4af3-ae2d-cdde7dfd5d7c" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/b8d56760-e20f-415e-9d24-9fcf07d50eb5" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/d9f63e16-2ab2-4473-b4d7-4dbde800ffb4" /><img width="98" height="55" alt="image" src="https://github.com/user-attachments/assets/6f8c5787-f703-4fb1-8f18-69004748c051" />
 
-![](https://files.catbox.moe/111728.png)
+
+
+
+
 
 <p align="center">${\textsf{\color{#56a43a}info dump !!}}$
 <p align="center">${\textsf{\color{#aa5e61}i dont respond well to compliments..}}$
