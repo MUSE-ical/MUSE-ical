@@ -1,3 +1,4 @@
+   <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Snowburst+One&pause=1000&color=AE768D&width=435&lines=welcome+to+my+very+boring+readme!!+%3A)" alt="Typing SVG" /></a>
 
    <div align="center">
 <details>
@@ -42,6 +43,6 @@ $\color{#8d4761}{\textsf{◝(ᵔᗜᵔ)◜ sth , smiles , Twilights zone enjoyer
 
 $\color{#ce7b99}{\textsf{⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔}}$
 
-$\color{#8d4761}{\textsf{⁭mostly uses she/they when first inting!)⁭}}$
+$\color{#8d4761}{\textsf{⁭"Will you greet the daylight looming?"⁭}}$
 
 ![](https://file.garden/aRJiOL-RcxklS7T1/dividerss?v=1784556914934)
