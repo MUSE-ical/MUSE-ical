@@ -12,7 +12,7 @@
 ![](https://file.garden/aRJiOL-RcxklS7T1/dividers?v=1784556837108)
 
 
-[![muse_ical.'s status badge](https://dsc-readme.tsuni.dev/api/user/1328979981262651423?pronouns=intern&banner=https%3A%2F%2Ffile.garden%2FaRJiOL-RcxklS7T1%2F2026_07_20_0hs_Kleki.png%3Fv%3D1784558429420&theme=custom&colorB1=FFFFFF&colorB2=DE81A9&colorB3=CC4984&colorT1=FCA9DA&colorT2=AB1D45&width=512&font=modern&effect=gradient&nameColor1=D95080&nameColor2=F0AFCA&layout=badge)](https://github.com/the-snesler/discord-github-preview) <-- my discord!! (●'◡'●)
+[![muse_ical.'s status badge](https://dsc-readme.tsuni.dev/api/user/1328979981262651423?pronouns=intern&banner=https%3A%2F%2Ffile.garden%2FaRJiOL-RcxklS7T1%2F2026_07_20_0hs_Kleki.png%3Fv%3D1784558429420&theme=custom&colorB1=FFFFFF&colorB2=DE81A9&colorB3=CC4984&colorT1=FCA9DA&colorT2=AB1D45&width=512&font=modern&effect=gradient&nameColor1=D95080&nameColor2=F0AFCA&layout=badge)](https://github.com/the-snesler/discord-github-preview) $\color{#ce88a2}{\textsf{<-- my discord!! (●'◡'●)}}$
 
 $\color{#ce88a2}{\textsf{.𖥔 ݁ ˖}}$ $\color{#8d4761}{\textsf{R}}$ $\color{#ce7b99}{\textsf{e}}$ $\color{#ce88a2}{\textsf{v}}$ $\color{#ce7a99}{\textsf{e}}$ $\color{#8d4761}{\textsf{r}}$ $\color{#8d4761}{\textsf{i}}$ $\color{#ce7b99}{\textsf{e}}$ $\color{#ce88a2}{\textsf{꒰꒰ 𓏲𝄢 ꒱꒱}}$ $\color{#ce88a2}{\textsf{E}}$ $\color{#ce7a99}{\textsf{v}}$ $\color{#8d4761}{\textsf{e}}$ $\color{#ce88a2}{\textsf{.𖥔 ݁ ˖}}$
 
