@@ -4,6 +4,11 @@
 
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=FreckleFace&weight=900&pause=1000&color=1A9BEF&width=442&lines=u+r+very+kewl+and+awesum+friend+!!+%5E_%5E" alt="Typing SVG" /></a>
 
+<p align="center"><img alt="Static Badge" src="https://img.shields.io/badge/7-1a9bef?style=plastic&label=chaos%20emeralds&labelColor=1a9bef&color=fccb06"> <img alt="Static Badge" src="https://img.shields.io/badge/13-1a9bef?style=plastic&logoColor=fccb06&label=lvl&labelColor=fccb06&color=d63232"> <img alt="Static Badge" src="https://img.shields.io/badge/fun!-d63232?style=plastic&label=circus&labelColor=1a9bef">
+
+
+
+
    ![](https://64.media.tumblr.com/6738debe3fcce38e282de419fb32cb92/07637d3b1fa89e26-f0/s400x600/ae30536136ced4d597adc7ec14e2027ab82c8a6e.pnj)![](https://64.media.tumblr.com/6738debe3fcce38e282de419fb32cb92/07637d3b1fa89e26-f0/s400x600/ae30536136ced4d597adc7ec14e2027ab82c8a6e.pnj)
 
 <p align="center">$\color{#fccb06}{\textsf{ʜɪʜɪ!! ɪ'ᴍ ᴋɴᴏᴡɴ ᴀs ʀᴇᴠᴇʀɪᴇ/ʀᴏsɪᴇ/ᴇᴠᴇ ʙᴜᴛ ʏᴏᴜ ᴄᴀɴ ᴄᴀʟʟ ᴍᴇ ᴡʜᴀᴛᴇᴠᴇʀ ʏᴏᴜ ʟɪᴋᴇ!! ɪᴅᴍ!!}}$
