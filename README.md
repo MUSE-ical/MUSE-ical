@@ -1,49 +1,21 @@
-   <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Snowburst+One&pause=1000&color=AE768D&width=435&lines=welcome+to+my+very+boring+readme!!+%3A)" alt="Typing SVG" /></a>
+<p align="left"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=FreckleFace&pause=1000&color=D63232&width=435&lines=%E2%80%9C+Do+you+like+pancakes+%3F+!+%E2%80%9E" alt="Typing SVG" /></a>
+<p align="right"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=FreckleFace&pause=1000&color=FCCB06&width=435&lines=%E2%80%9C+Yeah+we+like+pancakes!!+%E2%80%9E" alt="Typing SVG" /></a>
+<img width="924" height="355" alt="image" src="https://github.com/user-attachments/assets/e8d037ad-5011-4e2e-b969-af115b665117" />
 
-   <div align="center">
-<details>
-<summary></summary>
-   <br>
-<p align="left">
-<ins><b><em><tr><td><br> </em></b></ins>
+<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=FreckleFace&weight=900&pause=1000&color=1A9BEF&width=442&lines=u+r+very+kewl+and+awesum+friend+!!+%5E_%5E" alt="Typing SVG" /></a>
 
-![](https://file.garden/aRJiOL-RcxklS7T1/exotic%20riders?v=1784557076276)
+   ![](https://64.media.tumblr.com/6738debe3fcce38e282de419fb32cb92/07637d3b1fa89e26-f0/s400x600/ae30536136ced4d597adc7ec14e2027ab82c8a6e.pnj)![](https://64.media.tumblr.com/6738debe3fcce38e282de419fb32cb92/07637d3b1fa89e26-f0/s400x600/ae30536136ced4d597adc7ec14e2027ab82c8a6e.pnj)![](https://file.garden/aRJiOL-RcxklS7T1/2026_07_23_02s_Kleki.png?v=1784785287278)
 
-![](https://file.garden/aRJiOL-RcxklS7T1/dividers?v=1784556837108)
+<p align="center">$\color{#fccb06}{\textsf{ʜɪʜɪ!! ɪ'ᴍ ᴋɴᴏᴡɴ ᴀs ʀᴇᴠᴇʀɪᴇ/ʀᴏsɪᴇ/ᴇᴠᴇ ʙᴜᴛ ʏᴏᴜ ᴄᴀɴ ᴄᴀʟʟ ᴍᴇ ᴡʜᴀᴛᴇᴠᴇʀ ʏᴏᴜ ʟɪᴋᴇ!! ɪᴅᴍ!!}}$
 
- $\color{#ce88a2}{\textsf{"I am a superstar!"}}$
+<p align="center">$\color{#d63232}{\textsf{ᴍʏ ʙᴇsᴛ ғʀɪᴇɴᴅ ɪs ᴍɪᴢᴢ!! ʙᴜᴛ ʜᴇs ᴏɴʟʏ ᴏɴ ᴅɪsᴄᴏʀᴅ ɴᴏᴡᴀᴅᴀʏs..}}$
 
-$\color{#ce7b99}{\textsf{⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔}}$
+<p align="center">$\color{#1a9bef}{\textsf{ɪᴍ ʟᴇᴠᴇʟ ᴛʜɪʀᴛᴇᴇɴ ᴀɴᴅ ᴍʏ ᴍᴏᴍ ɪs ʟᴀᴢʏ!!}}$
 
-$\color{#ce88a2}{\textsf{.𖥔 ݁ ˖}}$ $\color{#8d4761}{\textsf{R}}$ $\color{#ce7b99}{\textsf{e}}$ $\color{#ce88a2}{\textsf{v}}$ $\color{#ce7a99}{\textsf{e}}$ $\color{#8d4761}{\textsf{r}}$ $\color{#8d4761}{\textsf{i}}$ $\color{#ce7b99}{\textsf{e}}$ $\color{#ce88a2}{\textsf{꒰꒰ 𓏲𝄢 ꒱꒱}}$ $\color{#ce88a2}{\textsf{E}}$ $\color{#ce7a99}{\textsf{v}}$ $\color{#8d4761}{\textsf{e}}$ $\color{#ce88a2}{\textsf{.𖥔 ݁ ˖}}$
+<p align="center">$\color{#fccb06}{\textsf{ᴍʏ ᴅɪsᴄᴏʀᴅ ᴋᴇᴇᴘs ʟᴀɢɢɪɴɢ sᴏ, ɪ'ᴍ ɴᴇᴠᴇʀ ᴏɴʟɪɴᴇ ᴏɴ ᴅɪsᴄᴏʀᴅ..}}$
 
-$\color{#ce7b99}{\textsf{⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔}}$
+![](https://64.media.tumblr.com/750ea271e117d86f00f56c524f59c1d7/07637d3b1fa89e26-28/s2048x3072/a858a33c0eae5a0d70a0c283eb3666301a997835.pnj)
 
-$\color{#8d4761}{\textsf{◝(ᵔᗜᵔ)◜ Leveled up to 13! .𖥔 ݁ ˖ infp - t ₍⑅ᐢ..ᐢ₎..}}$
+![](https://64.media.tumblr.com/91d335544b68f9341354b8644437b663/07637d3b1fa89e26-e4/s2048x3072/b719fa3f24ad1211e56d08d161ca49c44d1ab23b.pnj)
 
-$\color{#ce7b99}{\textsf{⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔}}$
-
-$\color{#8d4761}{\textsf{⁭interbinary ! (more info abt it on prns.page!)⁭}}$
-
-<div align="center">
-      <br>
-   <div align="center">
-<details>
-<summary></summary>
-   <br>
-<p align="left">
-<ins><b><em><tr><td><br> </em></b></ins>
-
-![](https://file.garden/aRJiOL-RcxklS7T1/easter?v=1784561158722)
-
-$\color{#ce88a2}{\textsf{.𖥔 ݁ ˖}}$ $\color{#8d4761}{\textsf{A}}$ $\color{#ce7b99}{\textsf{m}}$ $\color{#ce88a2}{\textsf{i}}$ $\color{#ce7a99}{\textsf{e}}$ $\color{#8d4761}{\textsf{r}}$ $\color{#8d4761}{\textsf{o}}$ $\color{#ce7b99}{\textsf{s}}$ $\color{#ce88a2}{\textsf{e}}$ $\color{#ce88a2}{\textsf{I}}$ $\color{#ce7a99}{\textsf{D}}$ $\color{#ce88a2}{\textsf{.𖥔 ݁ ˖}}$
-
-$\color{#ce7b99}{\textsf{⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔}}$
-
-$\color{#8d4761}{\textsf{◝(ᵔᗜᵔ)◜ sth , smiles , Twilights zone enjoyer!}}$
-
-$\color{#ce7b99}{\textsf{⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔}}$
-
-$\color{#8d4761}{\textsf{⁭"Will you greet the daylight looming?"⁭}}$
-
-![](https://file.garden/aRJiOL-RcxklS7T1/dividerss?v=1784556914934)
+![](https://64.media.tumblr.com/b61310e981390cd195c30f4d096aa094/07637d3b1fa89e26-8f/s2048x3072/1e0e45cdda39178b646f61b20d93d0ec88c347da.pnj)
