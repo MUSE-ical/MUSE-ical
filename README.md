@@ -4,7 +4,7 @@
 
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=FreckleFace&weight=900&pause=1000&color=1A9BEF&width=442&lines=u+r+very+kewl+and+awesum+friend+!!+%5E_%5E" alt="Typing SVG" /></a>
 
-   ![](https://64.media.tumblr.com/6738debe3fcce38e282de419fb32cb92/07637d3b1fa89e26-f0/s400x600/ae30536136ced4d597adc7ec14e2027ab82c8a6e.pnj)![](https://64.media.tumblr.com/6738debe3fcce38e282de419fb32cb92/07637d3b1fa89e26-f0/s400x600/ae30536136ced4d597adc7ec14e2027ab82c8a6e.pnj)![](https://file.garden/aRJiOL-RcxklS7T1/2026_07_23_02s_Kleki.png?v=1784785287278)
+   ![](https://64.media.tumblr.com/6738debe3fcce38e282de419fb32cb92/07637d3b1fa89e26-f0/s400x600/ae30536136ced4d597adc7ec14e2027ab82c8a6e.pnj)![](https://64.media.tumblr.com/6738debe3fcce38e282de419fb32cb92/07637d3b1fa89e26-f0/s400x600/ae30536136ced4d597adc7ec14e2027ab82c8a6e.pnj)
 
 <p align="center">$\color{#fccb06}{\textsf{ʜɪʜɪ!! ɪ'ᴍ ᴋɴᴏᴡɴ ᴀs ʀᴇᴠᴇʀɪᴇ/ʀᴏsɪᴇ/ᴇᴠᴇ ʙᴜᴛ ʏᴏᴜ ᴄᴀɴ ᴄᴀʟʟ ᴍᴇ ᴡʜᴀᴛᴇᴠᴇʀ ʏᴏᴜ ʟɪᴋᴇ!! ɪᴅᴍ!!}}$
 
