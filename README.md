@@ -1,26 +1,28 @@
-<p align="left"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=FreckleFace&pause=1000&color=D63232&width=435&lines=%E2%80%9C+Do+you+like+pancakes+%3F+!+%E2%80%9E" alt="Typing SVG" /></a>
-<p align="right"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=FreckleFace&pause=1000&color=FCCB06&width=435&lines=%E2%80%9C+Yeah+we+like+pancakes!!+%E2%80%9E" alt="Typing SVG" /></a>
-<img width="924" height="355" alt="image" src="https://github.com/user-attachments/assets/e8d037ad-5011-4e2e-b969-af115b665117" />
+<div align="right">
 
-<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=FreckleFace&weight=900&pause=1000&color=1A9BEF&width=442&lines=u+r+very+kewl+and+awesum+friend+!!+%5E_%5E" alt="Typing SVG" /></a>
+![](https://file.garden/aRJiOL-RcxklS7T1/Untitled247_20260723152542.png?v=1785071789661)
 
-<p align="center"><img alt="Static Badge" src="https://img.shields.io/badge/7-1a9bef?style=plastic&label=chaos%20emeralds&labelColor=1a9bef&color=fccb06"> <img alt="Static Badge" src="https://img.shields.io/badge/13-1a9bef?style=plastic&logoColor=fccb06&label=lvl&labelColor=fccb06&color=d63232"> <img alt="Static Badge" src="https://img.shields.io/badge/fun!-d63232?style=plastic&label=circus&labelColor=1a9bef">
+![](https://file.garden/aRJiOL-RcxklS7T1/2026_07_26_0g9_Kleki.png?v=1785073561649)
 
+<p align="center">${\mathcal{\color{#887d85}what \ a \ afternoon}}$ 
+<p align="center">${\mathcal{\color{#bb97b4}︶⊹︶︶୨୧︶︶⊹︶}}$
+<p align="center">${\mathcal{\color{#887d85}info \ dump}}$ 
+<div align="center">
+      <br>‎
+   <div align="center">
+<details>
+<summary></summary>
+   <br>
+<p align="center">${\mathcal{\color{#887d85}wipp...}}$ 
 
+![](https://file.garden/aRJiOL-RcxklS7T1/2026_07_26_0g9_Kleki.png?v=1785073561649)
 
+<p align="center">${\mathcal{\color{#887d85}online \ family \ + \ irl \ family}}$    
+<div align="center">
+      <br>‎
+   <div align="center">
+<details>
+<summary></summary>
+   <br>
 
-   ![](https://64.media.tumblr.com/6738debe3fcce38e282de419fb32cb92/07637d3b1fa89e26-f0/s400x600/ae30536136ced4d597adc7ec14e2027ab82c8a6e.pnj)![](https://64.media.tumblr.com/6738debe3fcce38e282de419fb32cb92/07637d3b1fa89e26-f0/s400x600/ae30536136ced4d597adc7ec14e2027ab82c8a6e.pnj)
-
-<p align="center">$\color{#fccb06}{\textsf{ʜɪʜɪ!! ɪ'ᴍ ᴋɴᴏᴡɴ ᴀs ʀᴇᴠᴇʀɪᴇ/ʀᴏsɪᴇ/ᴇᴠᴇ ʙᴜᴛ ʏᴏᴜ ᴄᴀɴ ᴄᴀʟʟ ᴍᴇ ᴡʜᴀᴛᴇᴠᴇʀ ʏᴏᴜ ʟɪᴋᴇ!! ɪᴅᴍ!!}}$
-
-<p align="center">$\color{#d63232}{\textsf{ᴍʏ ʙᴇsᴛ ғʀɪᴇɴᴅ ɪs ᴍɪᴢᴢ!! ʙᴜᴛ ʜᴇs ᴏɴʟʏ ᴏɴ ᴅɪsᴄᴏʀᴅ ɴᴏᴡᴀᴅᴀʏs..}}$
-
-<p align="center">$\color{#1a9bef}{\textsf{ɪᴍ ʟᴇᴠᴇʟ ᴛʜɪʀᴛᴇᴇɴ ᴀɴᴅ ᴍʏ ᴘᴀʀᴇɴᴛ ɪs ʟᴀᴢʏ!!}}$
-
-<p align="center">$\color{#fccb06}{\textsf{ᴍʏ ᴅɪsᴄᴏʀᴅ ᴋᴇᴇᴘs ʟᴀɢɢɪɴɢ sᴏ, ɪ'ᴍ ɴᴇᴠᴇʀ ᴏɴʟɪɴᴇ ᴏɴ ᴅɪsᴄᴏʀᴅ..}}$
-
-![](https://64.media.tumblr.com/750ea271e117d86f00f56c524f59c1d7/07637d3b1fa89e26-28/s2048x3072/a858a33c0eae5a0d70a0c283eb3666301a997835.pnj)
-
-![](https://64.media.tumblr.com/91d335544b68f9341354b8644437b663/07637d3b1fa89e26-e4/s2048x3072/b719fa3f24ad1211e56d08d161ca49c44d1ab23b.pnj)
-
-![](https://64.media.tumblr.com/b61310e981390cd195c30f4d096aa094/07637d3b1fa89e26-8f/s2048x3072/1e0e45cdda39178b646f61b20d93d0ec88c347da.pnj)
+<p align="center">${\mathcal{\color{#887d85}wipp...}}$ 
