@@ -16,7 +16,7 @@
 
 ▻ ⠀thirteen years old!! I'm interbinary as seen on everything <3
 
-▻ ⠀amy rose , tails the fox , cream the rabbit , etc ID's!! 
+▻ ⠀ID of amy rose , Shelly Fossilian , bobby bearhug , etc!! 
 
 ▻ ⠀mostly seen w/ siblings or with <a href="https://github.com/lazikoly"> lazy!! my parent!!</a> and their friends!!
 
