@@ -6,7 +6,7 @@
 
 <p align="center">${\mathcal{\color{#887d85}what \ a \ afternoon}}$ 
 <p align="center">${\mathcal{\color{#bb97b4}︶⊹︶︶୨୧︶︶⊹︶}}$
-<p align="center">${\mathcal{\color{#887d85}info \ dump}}$ 
+<p align="center">${\mathcal{\color{#887d85}int \ + \ dni \ + \ byi}}$ 
 <div align="center">
       <br>‎
    <div align="center">
