@@ -50,7 +50,7 @@
 
 ▻ ⠀ex-friends are on THINEST SHEET OF ICE. if i unfriended u when on break, we can reconnect!!
 
-▻ sark-glazers and whoever glazes Pink(from deltarune)
+▻ sark-glazers and any character thats like sark.
 
 ▻ ⠀deltarune fans are on thin ice aswell.
 </details>
