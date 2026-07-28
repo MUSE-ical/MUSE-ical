@@ -37,6 +37,8 @@
 
 ▻ ⠀i go on a break at every start of the year 3: .. sorry in advance!
 
+▻ ⠀i am a coping link of c00lkidd..
+
 </details>
 
   <details>
@@ -53,6 +55,8 @@
 ▻ sark-glazers and any character thats like sark.
 
 ▻ ⠀deltarune fans are on thin ice aswell.
+
+▻ ⠀forsaken fans are on broken glass. iwvec because most of you are weird. ALSO SPAWNISM DNI CAUSE WHY THE HELL DOES THIS EVEN EXIST??
 </details>
 
   <details>
