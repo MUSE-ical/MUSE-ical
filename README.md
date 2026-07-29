@@ -1,68 +1,37 @@
-<div align="right">
+<div align="center">
 
-![](https://file.garden/aRJiOL-RcxklS7T1/Untitled247_20260723152542.png?v=1785071789661)
+  ![](https://file.garden/aRJiOL-RcxklS7T1/dreamyspheres.png)
 
-![](https://file.garden/aRJiOL-RcxklS7T1/2026_07_26_0g9_Kleki.png?v=1785073561649)
+ $\color{#98a2fb}{\textsf{river}}$ ![](https://64.media.tumblr.com/4dd8244dee8f3a5708c6cb156317b766/db7ce6708c01e3ab-73/s75x75_c1/58e35ae3e46819280697c35bcfdb4885a407228e.gifv) $\color{#98a2fb}{\textsf{winter}}$
 
-<p align="center">${\mathcal{\color{#887d85}what \ a \ afternoon}}$ 
-<p align="center">${\mathcal{\color{#bb97b4}︶⊹︶︶୨୧︶︶⊹︶}}$
-<p align="center">${\mathcal{\color{#887d85}info \ dump !!}}$ 
+ ![](https://64.media.tumblr.com/5f1f4270fb1a168287f58f7e590eb678/8a79805c334d096e-97/s75x75_c1/de15ede366ac544b859a588bb921a86b512eb4cf.gifv) $\color{#98a2fb}{\textsf{thirteen}}$ ❅
+$\color{#98a2fb}{\textsf{infp-t}}$ ![](https://64.media.tumblr.com/91f090a37b17c318bc120da271a7083f/8a79805c334d096e-1e/s75x75_c1/8bee8734c64ebdfc0876048fd6a2f5eb9a3f682b.gifv) $\color{#98a2fb}{\textsf{ODD}}$
+
+![](https://64.media.tumblr.com/76939cdbd74a1682e33942622ae3e06c/8a79805c334d096e-af/s75x75_c1/0663726f742da65025983e9e5f3a64d64da2ab4e.gifv) $\color{#98a2fb}{\textsf{eunoia fictkin}}$
+
   <details>
   <summary>
-    <b>　　info !! </b>
+    <b>　　❅ </b>
   </summary>
 
-▻ ⠀hi im Reverie!! I'm mostly called by Rosie or Eve!!
+  ![](https://file.garden/aRJiOL-RcxklS7T1/eunoia.png)
+$\color{#98a2fb}{\textsf{                            }}$
 
-▻ ⠀thirteen years old!! I'm interbinary as seen on everything <3
+$\color{#98a2fb}{\textsf{bpd , adhd , schizotypal , etc .}}$
 
-▻ ⠀ID of amy rose , Shelly Fossilian , bobby bearhug , etc!! 
+$\color{#e6e7ff}{\textsf{always iwcare cause i might be in a bad mood.}}$
 
-▻ ⠀mostly seen w/ siblings or with <a href="https://github.com/lazikoly"> lazy!! my parent!!</a> and their friends!!
+$\color{#98a2fb}{\textsf{i prefer to have only small talks.}}$
 
-▻ ⠀im usually offtab but c+h is heavily encouraged!!! yay!!
-
+$\color{#e6e7ff}{\textsf{my dni is the basic dni. idc what age you are, just iwec.}}$
 </details>
 
   <details>
   <summary>
-    <b>　　byi . . </b>
+    <b>　　★ </b>
   </summary>
 
-▻ ⠀i am VERY antisocial, but I try to interact anyways!!
-
-▻ ⠀i have times where i'm not very kind to anyone..
-
-▻ ⠀bpd , schizotypal disorder , odd , etc..
-
-▻ ⠀i go on a break at every start of the year 3: .. sorry in advance!
-
-▻ ⠀i am a coping link of c00lkidd..
-
-</details>
-
-  <details>
-  <summary>
-    <b>　　dni. </b>
-  </summary>
-
-▻ ⠀<a href="https://dni-criteria.carrd.co/"> basic dni</a> + above 18(UNLESS CLOSE FRIEND)
-
-▻ ⠀dandys world fans(DNI UNLESS FRIEND)
-
-▻ ⠀ex-friends are on THINEST SHEET OF ICE. if i unfriended u when on break, we can reconnect!!
-
-▻ sark-glazers and any character thats like sark.
-
-▻ ⠀deltarune fans are on thin ice aswell.
-
-▻ ⠀forsaken fans are on broken glass. iwvec because most of you are weird. ALSO SPAWNISM DNI CAUSE WHY THE HELL DOES THIS EVEN EXIST??
-</details>
-
-  <details>
-  <summary>
-    <b>　　　online family + irl family !! </b>
-  </summary>
+![](https://file.garden/aRJiOL-RcxklS7T1/euphoria.png)
 
 ▻ ⠀<a href="https://github.com/lazikoly"> lazy!! my parent!!</a>
 
@@ -72,5 +41,4 @@
 
 ▻ ⠀<a href="https://github.com/ghastlyknig"> Lunny(ive)!! my irl sibby!! </a>
 </details>
-<div align="center">
 
