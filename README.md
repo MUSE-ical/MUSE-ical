@@ -23,7 +23,7 @@ $\color{#e6e7ff}{\textsf{always iwcare cause i might be in a bad mood.}}$
 
 $\color{#98a2fb}{\textsf{i prefer to have only small talks ok?}}$
 
-$\color{#e6e7ff}{\textsf{my dni is the basic dni. idc what age you are, just iwec if over 18!}}$
+$\color{#e6e7ff}{\textsf{my dni is the basic dni. 18+ dniuf/id.}}$
 </details>
 
   <details>
