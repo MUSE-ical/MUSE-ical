@@ -21,9 +21,9 @@ $\color{#98a2fb}{\textsf{bpd , adhd , schizotypal , etc .}}$
 
 $\color{#e6e7ff}{\textsf{always iwcare cause i might be in a bad mood.}}$
 
-$\color{#98a2fb}{\textsf{i prefer to have only small talks.}}$
+$\color{#98a2fb}{\textsf{i prefer to have only small talks ok?}}$
 
-$\color{#e6e7ff}{\textsf{my dni is the basic dni. idc what age you are, just iwec.}}$
+$\color{#e6e7ff}{\textsf{my dni is the basic dni. idc what age you are, just iwec if over 18!}}$
 </details>
 
   <details>
@@ -33,12 +33,16 @@ $\color{#e6e7ff}{\textsf{my dni is the basic dni. idc what age you are, just iwe
 
 ![](https://file.garden/aRJiOL-RcxklS7T1/euphoria.png)
 
-▻ ⠀<a href="https://github.com/lazikoly"> lazy!! my parent!!</a>
+$\color{#98a2fb}{\textsf{online + irl family!}}$
 
-▻ ⠀<a href="https://github.com/NoLoveInTheHouseOfG0ld"> bella!! my aunt!!</a>
+▻ ⠀<a href="https://github.com/lazikoly"> lazy!! my parent!</a>
 
-▻ ⠀<a href="https://github.com/VintageNight"> Hollow!! my irl sibby!! </a>
+▻ ⠀<a href="https://github.com/NoLoveInTheHouseOfG0ld"> bella!! my aunt!</a>
 
-▻ ⠀<a href="https://github.com/ghastlyknig"> Lunny(ive)!! my irl sibby!! </a>
+▻ ⠀<a href="https://github.com/skuix"> Skypie!! my sibling! </a>
+
+▻ ⠀<a href="https://github.com/VintageNight"> Hollow!! my irl sib! </a>
+
+▻ ⠀<a href="https://github.com/ghastlyknig"> Lunive!! my irl sib! </a>
 </details>
 
