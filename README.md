@@ -2,6 +2,8 @@
 
   ![](https://file.garden/aRJiOL-RcxklS7T1/dreamyspheres.png)
 
+  ![](https://64.media.tumblr.com/f92193a4dc4cd7ba7ee5ea4d253bd44e/8a79805c334d096e-0a/s75x75_c1/35096b73353fff2a1498de1a25b360f172b8e584.gifv) $\color{#98a2fb}{\textsf{"And love me}}$ $\color{#e6e7ff}{\textsf{like a sailor!"}}$
+
  $\color{#98a2fb}{\textsf{river}}$ ![](https://64.media.tumblr.com/4dd8244dee8f3a5708c6cb156317b766/db7ce6708c01e3ab-73/s75x75_c1/58e35ae3e46819280697c35bcfdb4885a407228e.gifv) $\color{#e6e7ff}{\textsf{winter}}$
 
  ![](https://64.media.tumblr.com/5f1f4270fb1a168287f58f7e590eb678/8a79805c334d096e-97/s75x75_c1/de15ede366ac544b859a588bb921a86b512eb4cf.gifv) $\color{#98a2fb}{\textsf{thirteen}}$ ❅
