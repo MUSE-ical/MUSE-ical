@@ -19,7 +19,7 @@ $\color{#98a2fb}{\textsf{                  �
 
 $\color{#98a2fb}{\textsf{bpd , adhd , schizotypal , etc .}}$
 
-$\color{#e6e7ff}{\textsf{always iwcare cause i might be in a bad mood.}}$
+$\color{#e6e7ff}{\textsf{always iwecare cause i might be in a bad mood.. sorry!}}$
 
 $\color{#98a2fb}{\textsf{i prefer to have only small talks ok?}}$
 
