@@ -28,6 +28,10 @@ $\color{#1b3595}{\textsf{I am really passionate about my interests and I constan
 $\color{#1b82a8}{\textsf{as seen on EVERYTHING to keep people from thinking that I only go by neu , fem or masc terms only... I'm  interbinary! not just cisgender or non-binary!}}$
 
 $\color{#00ee4c}{\textsf{I will NEVER tell anyone what is my assigned at birth gender.. do NOT try to guess or i'll block you okay? this goes for even friends..}}$
+
+$\color{#1b82a8}{\textsf{i go by literally anything except for slurs!}}$
+
+$\color{#1b47ac}{\textsf{I make so many jokes and im #unfunny,, but its okay cause everyone loves their favorite tv host!}}$
   
   </details>
 
@@ -59,5 +63,9 @@ $\color{#00af7e}{\textsf{very easy to trigger.. I dont like loud noises ok.}}$
   </summary>
 
 $\color{#1b5fbd}{\textsf{my dni is T.R.R.A.S.H! dni if you support/are! age doesn't matter since everyone is iwvec bro,,🥹🥹}}$
+
+$\color{#1b47ac}{\textsf{dni qwel supporters and forsaken fans iwvec cause yall are WEEIIRRDD!!!!}}$
+
+$\color{#00ee4c}{\textsf{( transphobic , racist 🍇ist , ableist , sexist , homophobic! ))}}$
 </details>
 
