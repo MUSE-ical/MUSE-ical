@@ -31,7 +31,7 @@ $\color{#00ee4c}{\textsf{I will NEVER tell anyone what is my assigned at birth g
 
 $\color{#1b82a8}{\textsf{i go by literally anything except for slurs!}}$
 
-$\color{#1b47ac}{\textsf{I make so many jokes and im #unfunny,, but its okay cause everyone loves their favorite tv host!}}$
+$\color{#1b47ac}{\textsf{I make so many jokes and im hashtag unfunny,, but its okay cause everyone loves their favorite tv host!}}$
   
   </details>
 
