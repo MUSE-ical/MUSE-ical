@@ -1,50 +1,63 @@
 <div align="center">
 
-  ![](https://file.garden/aRJiOL-RcxklS7T1/dreamyspheres.png)
+  ![](https://64.media.tumblr.com/55bf1b2cd93860270eb7f77d805f4857/a91f5f95b92fa807-63/s2048x3072/41307d22846c8659bcba95730b524847e6cc6862.pnj)
 
-  ![](https://64.media.tumblr.com/f92193a4dc4cd7ba7ee5ea4d253bd44e/8a79805c334d096e-0a/s75x75_c1/35096b73353fff2a1498de1a25b360f172b8e584.gifv) $\color{#98a2fb}{\textsf{"And love me}}$ $\color{#e6e7ff}{\textsf{like a sailor!"}}$
+  ![](https://64.media.tumblr.com/6419fa72a74a42c0cab47a061bfd6866/f5b35aecddd2391a-c6/s75x75_c1/cf0d0e9ab6b43efa6311c947d05a2e7360581f6a.webp) $\color{#00ee4c}{\textsf{ABOUT}}$ $\color{#00af7e}{\textsf{ME!!}}$
 
- $\color{#98a2fb}{\textsf{river}}$ ![](https://64.media.tumblr.com/4dd8244dee8f3a5708c6cb156317b766/db7ce6708c01e3ab-73/s75x75_c1/58e35ae3e46819280697c35bcfdb4885a407228e.gifv) $\color{#e6e7ff}{\textsf{winter}}$
+ $\color{#00bb86}{\mathcal{@muse_ical. on discord!}}$ ![](https://64.media.tumblr.com/9f250bbd90a95d4f4d78a9fbd3663a37/f5b35aecddd2391a-b2/s75x75_c1/1c571572b285d5ed4ed7b8a0cb50c93eab52aed9.webp) $\color{#1b2f85}{\mathcal{@popandsqueeze \ - \ lol \ on \ rblx!}}$
 
- ![](https://64.media.tumblr.com/5f1f4270fb1a168287f58f7e590eb678/8a79805c334d096e-97/s75x75_c1/de15ede366ac544b859a588bb921a86b512eb4cf.gifv) $\color{#98a2fb}{\textsf{thirteen}}$ ❅
-$\color{#e6e7ff}{\textsf{infp-t}}$ ![](https://64.media.tumblr.com/91f090a37b17c318bc120da271a7083f/8a79805c334d096e-1e/s75x75_c1/8bee8734c64ebdfc0876048fd6a2f5eb9a3f682b.gifv) $\color{#98a2fb}{\textsf{aroace}}$
+![](https://64.media.tumblr.com/b594c37d7c9faadc8acc76e2ae511a43/1012125e04e5c137-8e/s75x75_c1/32be5018d6585662faf041870cdbe857f145ea97.gifv) $\color{#1b82a8}{\textsf{literally Vee and Scag IRL!!!}}$
+<details>
+<summary>
+<b>
 
-![](https://64.media.tumblr.com/76939cdbd74a1682e33942622ae3e06c/8a79805c334d096e-af/s75x75_c1/0663726f742da65025983e9e5f3a64d64da2ab4e.gifv) $\color{#e6e7ff}{\textsf{eunoia fictkin/ID}}$
+
+![](https://64.media.tumblr.com/25ff0041f5c56a24179f39d9ffce4f46/a91f5f95b92fa807-d9/s100x200/f7d4fc9f5b45fcb9fce9041c610f08d55c342d73.pnj)
+
+  </b>
+  </summary>
+
+$\color{#00ee4c}{\textsf{other fandoms are : pjsk , roblox , scps , and other i forgot.. sorry to my other interests!!!}}$
+
+  $\color{#1b82a8}{\textsf{I'm also thirteen and turning fourteen next years january 4th! horray!}}$
+
+  $\color{#1b47ac}{\textsf{I'm an INFP-T with a hyperfixation of gemstones, sth, etc!! I love collecting gems and I have a collection that I will show but only on discord!}}$
+
+$\color{#1b3595}{\textsf{I am really passionate about my interests and I constantly talk about one of them!}}$
+
+$\color{#1b82a8}{\textsf{as seen on EVERYTHING to keep people from thinking that I only go by neu , fem or masc terms only... I'm  interbinary! not just cisgender or non-binary!}}$
+
+$\color{#00ee4c}{\textsf{I will NEVER tell anyone what is my assigned at birth gender.. do NOT try to guess or i'll block you okay? this goes for even friends..}}$
+  
+  </details>
 
   <details>
   <summary>
-    <b>　　❅ </b>
+    <b>
+
+![](https://64.media.tumblr.com/4b7e863f2b42efd4d9023e255e16acfe/a91f5f95b92fa807-d2/s100x200/7d2f427243e98bdb53171e1ff5ea854b8a9583a5.pnj)
+    
+  </b>
   </summary>
 
-  ![](https://file.garden/aRJiOL-RcxklS7T1/eunoia.png)
-$\color{#98a2fb}{\textsf{                            }}$
+$\color{#00af7e}{\textsf{bpd , adhd , schizotypal , etc ...}}$
 
-$\color{#98a2fb}{\textsf{bpd , adhd , schizotypal , etc .}}$
+$\color{#1b82a8}{\textsf{always iwecare cause i might be in a bad mood.. sorry!}}$
 
-$\color{#e6e7ff}{\textsf{always iwecare cause i might be in a bad mood.. sorry!}}$
+$\color{#1b328b}{\textsf{i prefer to have only small talks ok?}}$
 
-$\color{#98a2fb}{\textsf{i prefer to have only small talks ok?}}$
-
-$\color{#e6e7ff}{\textsf{my dni is the basic dni. 18+ dniuf/id.}}$
+$\color{#00af7e}{\textsf{very easy to trigger.. I dont like loud noises ok.}}$
 </details>
 
   <details>
   <summary>
-    <b>　　★ </b>
+    <b>
+
+![](https://64.media.tumblr.com/1ae241adb4878b79f1e7cf4582163a6b/a91f5f95b92fa807-f3/s100x200/482b5f375bbbb9c659ae9df5228df5c3f56cc0a8.pnj)
+      
+  </b>
   </summary>
 
-![](https://file.garden/aRJiOL-RcxklS7T1/euphoria.png)
-
-$\color{#98a2fb}{\textsf{online + irl family!}}$
-
-▻ ⠀<a href="https://github.com/lazikoly"> lazy!! my parent!</a>
-
-▻ ⠀<a href="https://github.com/NoLoveInTheHouseOfG0ld"> bella!! my aunt!</a>
-
-▻ ⠀<a href="https://github.com/skuix"> Skypie!! my sibling! </a>
-
-▻ ⠀<a href="https://github.com/VintageNight"> Hollow!! my irl sib! </a>
-
-▻ ⠀<a href="https://github.com/ghastlyknig"> Lunive!! my irl sib! </a>
+$\color{#1b5fbd}{\textsf{my dni is T.R.R.A.S.H! dni if you support/are! age doesn't matter since everyone is iwvec bro,,🥹🥹}}$
 </details>
 
