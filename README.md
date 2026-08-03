@@ -1,81 +1,17 @@
 <div align="center">
 
-  ![](https://64.media.tumblr.com/55bf1b2cd93860270eb7f77d805f4857/a91f5f95b92fa807-63/s2048x3072/41307d22846c8659bcba95730b524847e6cc6862.pnj)
+![](https://file.garden/aRJiOL-RcxklS7T1/window_frame.png)
 
-  ![](https://64.media.tumblr.com/6419fa72a74a42c0cab47a061bfd6866/f5b35aecddd2391a-c6/s75x75_c1/cf0d0e9ab6b43efa6311c947d05a2e7360581f6a.webp) $\color{#00ee4c}{\textsf{ABOUT}}$ $\color{#00af7e}{\textsf{ME!!}}$
+![](https://file.garden/aRJiOL-RcxklS7T1/_4.png) $\color{#e4eea1}{\textsf{kusanene /}}$ $\color{#b2aa7e}{\textsf{rosie}}$
 
- $\color{#00bb86}{\mathcal{@muse_ \ - \ ical \ . \ on discord!}}$ ![](https://64.media.tumblr.com/9f250bbd90a95d4f4d78a9fbd3663a37/f5b35aecddd2391a-b2/s75x75_c1/1c571572b285d5ed4ed7b8a0cb50c93eab52aed9.webp) $\color{#1b2f85}{\mathcal{@popandsqueeze \ - \ lol \ on \ rblx!}}$
+![](https://file.garden/aRJiOL-RcxklS7T1/_2.png)
 
-![](https://64.media.tumblr.com/b594c37d7c9faadc8acc76e2ae511a43/1012125e04e5c137-8e/s75x75_c1/32be5018d6585662faf041870cdbe857f145ea97.gifv) $\color{#1b82a8}{\textsf{literally Vee and Scag IRL!!!}}$
-<details>
-<summary>
-<b>
+$\color{#5d3442}{\textsf{infp-t + bpd . iwvec always.}}$
 
+![](https://file.garden/aRJiOL-RcxklS7T1/_1.png) 
 
-![](https://64.media.tumblr.com/25ff0041f5c56a24179f39d9ffce4f46/a91f5f95b92fa807-d9/s100x200/f7d4fc9f5b45fcb9fce9041c610f08d55c342d73.pnj)
+$\color{#b2aa7e}{\textsf{nene ID . dni doubles.}}$
 
-  </b>
-  </summary>
+![](https://file.garden/aRJiOL-RcxklS7T1/_3.png)
 
-$\color{#00ee4c}{\textsf{other fandoms are : pjsk , roblox , scps , and other i forgot.. sorry to my other interests!!!}}$
-
-  $\color{#1b82a8}{\textsf{I'm also thirteen and turning fourteen next years january 4th! horray!}}$
-
-  $\color{#1b47ac}{\textsf{I'm an INFP-T with a hyperfixation of gemstones, sth, etc!! I love collecting gems and I have a collection that I will show but only on discord!}}$
-
-$\color{#1b3595}{\textsf{I am really passionate about my interests and I constantly talk about one of them!}}$
-
-$\color{#1b82a8}{\textsf{as seen on EVERYTHING to keep people from thinking that I only go by neu , fem or masc terms only... I'm  interbinary! not just cisgender or non-binary!}}$
-
-$\color{#00ee4c}{\textsf{I will NEVER tell anyone what is my assigned at birth gender.. do NOT try to guess or i'll block you okay? this goes for even friends..}}$
-
-$\color{#1b82a8}{\textsf{i go by literally anything except for slurs!}}$
-
-$\color{#1b47ac}{\textsf{I make so many jokes and im hashtag unfunny,, but its okay cause everyone loves their favorite tv host!}}$
-
-<div align="center">
-</div>
-
-  <div style="width: 40%; display: flex; justify-content: center; align-items: center; padding: 20px; box-sizing: border-box;">
-    <a href="https://open.spotify.com/playlist/78r2j13iIf7sy6tdJi2qFU?si=bfd493b0f82d4508&pt=5db3be60cc7522b141d3b6e7e0409dfd">
-      <img src="https://64.media.tumblr.com/a38370a376bb35a0b0c70cb45ef34c80/b93c2706652ba3ce-0c/s75x75_c1/ea0067d5906affb51a459bc63f4e9a9ed51623c1.gifv" alt="meow!!" width="50%">
-    </a>
-  </div>
-
-
-  </details>
-
-  <details>
-  <summary>
-    <b>
-
-![](https://64.media.tumblr.com/4b7e863f2b42efd4d9023e255e16acfe/a91f5f95b92fa807-d2/s100x200/7d2f427243e98bdb53171e1ff5ea854b8a9583a5.pnj)
-    
-  </b>
-  </summary>
-
-$\color{#00af7e}{\textsf{bpd , adhd , schizotypal , etc ...}}$
-
-$\color{#1b82a8}{\textsf{always iwecare cause i might be in a bad mood.. sorry!}}$
-
-$\color{#1b328b}{\textsf{i prefer to have only small talks ok?}}$
-
-$\color{#00af7e}{\textsf{very easy to trigger.. I dont like loud noises ok.}}$
-</details>
-
-  <details>
-  <summary>
-    <b>
-
-![](https://64.media.tumblr.com/1ae241adb4878b79f1e7cf4582163a6b/a91f5f95b92fa807-f3/s100x200/482b5f375bbbb9c659ae9df5228df5c3f56cc0a8.pnj)
-      
-  </b>
-  </summary>
-
-$\color{#1b5fbd}{\textsf{my dni is T.R.R.A.S.H! dni if you support/are! age doesn't matter since everyone is iwvec bro,,🥹🥹}}$
-
-$\color{#1b47ac}{\textsf{dni qwel supporters and forsaken fans iwvec cause yall are WEEIIRRDD!!!!}}$
-
-$\color{#00ee4c}{\textsf{( transphobic , racist , 🍇ist , ableist , sexist , homophobic! ))}}$
-</details>
-
+$\color{#e4eea1}{\textsf{lv.13 . 01/04!🎂}}$
