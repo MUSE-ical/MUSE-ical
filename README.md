@@ -32,7 +32,17 @@ $\color{#00ee4c}{\textsf{I will NEVER tell anyone what is my assigned at birth g
 $\color{#1b82a8}{\textsf{i go by literally anything except for slurs!}}$
 
 $\color{#1b47ac}{\textsf{I make so many jokes and im hashtag unfunny,, but its okay cause everyone loves their favorite tv host!}}$
-  
+
+<div align="center">
+</div>
+
+  <div style="width: 40%; display: flex; justify-content: center; align-items: center; padding: 20px; box-sizing: border-box;">
+    <a href="https://open.spotify.com/playlist/78r2j13iIf7sy6tdJi2qFU?si=bfd493b0f82d4508&pt=5db3be60cc7522b141d3b6e7e0409dfd">
+      <img src="https://64.media.tumblr.com/a38370a376bb35a0b0c70cb45ef34c80/b93c2706652ba3ce-0c/s75x75_c1/ea0067d5906affb51a459bc63f4e9a9ed51623c1.gifv" alt="meow!!" width="50%">
+    </a>
+  </div>
+
+
   </details>
 
   <details>
