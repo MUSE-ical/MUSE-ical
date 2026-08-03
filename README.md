@@ -4,7 +4,7 @@
 
   ![](https://64.media.tumblr.com/6419fa72a74a42c0cab47a061bfd6866/f5b35aecddd2391a-c6/s75x75_c1/cf0d0e9ab6b43efa6311c947d05a2e7360581f6a.webp) $\color{#00ee4c}{\textsf{ABOUT}}$ $\color{#00af7e}{\textsf{ME!!}}$
 
- $\color{#00bb86}{\mathcal{@muse_ical. on discord!}}$ ![](https://64.media.tumblr.com/9f250bbd90a95d4f4d78a9fbd3663a37/f5b35aecddd2391a-b2/s75x75_c1/1c571572b285d5ed4ed7b8a0cb50c93eab52aed9.webp) $\color{#1b2f85}{\mathcal{@popandsqueeze \ - \ lol \ on \ rblx!}}$
+ $\color{#00bb86}{\mathcal{@muse_ \ - \ ical \ . \ on discord!}}$ ![](https://64.media.tumblr.com/9f250bbd90a95d4f4d78a9fbd3663a37/f5b35aecddd2391a-b2/s75x75_c1/1c571572b285d5ed4ed7b8a0cb50c93eab52aed9.webp) $\color{#1b2f85}{\mathcal{@popandsqueeze \ - \ lol \ on \ rblx!}}$
 
 ![](https://64.media.tumblr.com/b594c37d7c9faadc8acc76e2ae511a43/1012125e04e5c137-8e/s75x75_c1/32be5018d6585662faf041870cdbe857f145ea97.gifv) $\color{#1b82a8}{\textsf{literally Vee and Scag IRL!!!}}$
 <details>
@@ -66,6 +66,6 @@ $\color{#1b5fbd}{\textsf{my dni is T.R.R.A.S.H! dni if you support/are! age does
 
 $\color{#1b47ac}{\textsf{dni qwel supporters and forsaken fans iwvec cause yall are WEEIIRRDD!!!!}}$
 
-$\color{#00ee4c}{\textsf{( transphobic , racist 🍇ist , ableist , sexist , homophobic! ))}}$
+$\color{#00ee4c}{\textsf{( transphobic , racist , 🍇ist , ableist , sexist , homophobic! ))}}$
 </details>
 
