@@ -1,17 +1,21 @@
 <div align="center">
 
-![](https://file.garden/aRJiOL-RcxklS7T1/window_frame.png)
+![](https://file.garden/aRJiOL-RcxklS7T1/wxs.png)
 
-![](https://file.garden/aRJiOL-RcxklS7T1/_4.png) $\color{#e4eea1}{\textsf{kusanene /}}$ $\color{#b2aa7e}{\textsf{rosie}}$
+![](https://file.garden/aRJiOL-RcxklS7T1/divdeii.png)
+
+![](https://file.garden/aRJiOL-RcxklS7T1/zzz.png) $\color{#f6cd9a}{\textsf{kusa / nene / rosie}}$
 
 ![](https://file.garden/aRJiOL-RcxklS7T1/_2.png)
 
-$\color{#5d3442}{\textsf{infp-t + bpd . iwvec always.}}$
+$\color{#dda288}{\textsf{infp-t + bpd . iwvec always.}}$
 
-![](https://file.garden/aRJiOL-RcxklS7T1/_1.png) 
+![](https://file.garden/aRJiOL-RcxklS7T1/divdei.png) 
 
-$\color{#b2aa7e}{\textsf{nene ID . dni doubles.}}$
+$\color{#a94b64}{\textsf{nene ID . dni doubles.}}$
 
-![](https://file.garden/aRJiOL-RcxklS7T1/_3.png)
+![](https://file.garden/aRJiOL-RcxklS7T1/music.png)
 
-$\color{#e4eea1}{\textsf{lv.13 . 01/04!🎂}}$
+$\color{#850f4a}{\textsf{lv.13 . 01/04!🎂}}$
+
+![](https://file.garden/aRJiOL-RcxklS7T1/divider.png)
