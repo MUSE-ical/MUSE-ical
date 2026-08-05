@@ -12,6 +12,10 @@
 
 ![](https://file.garden/aRJiOL-RcxklS7T1/zzz.png) $\color{#f6cd9a}{\textsf{kusa / nene / rosie}}$
 
+![](https://file.garden/aRJiOL-RcxklS7T1/button-88x31%20(9).gif) ![](https://file.garden/aRJiOL-RcxklS7T1/button-88x31%20(12).gif)
+
+$\color{#a94b64}{\textsf{(i will recolor these soon im lazy rn..)}}$
+
 ![](https://file.garden/aRJiOL-RcxklS7T1/_2.png)
 
 $\color{#dda288}{\textsf{infp-t + bpd . interbinary!}}$
