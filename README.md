@@ -21,6 +21,8 @@ $\color{#a94b64}{\textsf{nene ID . dni doubles.}}$
 
 ![](https://file.garden/aRJiOL-RcxklS7T1/music.png)
 
-$\color{#850f4a}{\textsf{lv.13 . 01/04!🎂}}$
+$\color{#850f4a}{\textsf{i will not int if you have my age}}$
+
+  $\color{#850f4a}{\textsf{as your dni!}}$
 
 ![](https://file.garden/aRJiOL-RcxklS7T1/divider.png)
