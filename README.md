@@ -7,7 +7,9 @@
 <a href="https://open.spotify.com/artist/2hSk8TGHXNQwIiDRYtzLdv"><img src="https://file.garden/aRJiOL-RcxklS7T1/buttuuon.png" alt="Border 1"/></a> <a href="https://kusa-nene.straw.page">
 <img src="https://file.garden/aRJiOL-RcxklS7T1/button-88x31%20(6).png" alt="Border 1"/></a>
 
-<a href="https://open.spotify.com/track/7iKEZ68ziPhcTrcbRL0Pqz?si=f477d7bf8ffc47b9"><img src="https://file.garden/aRJiOL-RcxklS7T1/button-88x31%20(8).png" alt="Border 1"/> </a><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Felipa&pause=1000&color=A94B64&width=523&lines=%22+I+was+almost+crushed+by+the+space+between+the+end+of+the+blue+sky;and+the+beginning+of+the+night+sky.;Even+though+this+vague+coral+is+dyed+a+bitter+orange%2C;If+I+sing+this+song%2C+is+it+alright%3F;If+my+wish+can't+come+true%2C;then+even+if%2C+Without+the+world+ever+even+beginning;and+without+ever+having+met+you%2C;The+coral+in+the+miniature+garden+will+dazzle+me+one+day%2C;I'll+sing+this+song+and+smile.+%22" alt="Typing SVG" /></a>
+<a href="https://open.spotify.com/track/7iKEZ68ziPhcTrcbRL0Pqz?si=f477d7bf8ffc47b9"><img src="https://file.garden/aRJiOL-RcxklS7T1/button-88x31%20(8).png" alt="Border 1"/> </a> 
+
+![](https://file.garden/aRJiOL-RcxklS7T1/blank.png)<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Felipa&pause=1000&color=A94B64&width=523&lines=%22+I+was+almost+crushed+by+the+space+between+the+end+of+the+blue+sky;and+the+beginning+of+the+night+sky.;Even+though+this+vague+coral+is+dyed+a+bitter+orange%2C;If+I+sing+this+song%2C+is+it+alright%3F;If+my+wish+can't+come+true%2C;then+even+if%2C+Without+the+world+ever+even+beginning;and+without+ever+having+met+you%2C;The+coral+in+the+miniature+garden+will+dazzle+me+one+day%2C;I'll+sing+this+song+and+smile.+%22" alt="Typing SVG" /></a>
 
 ![](https://file.garden/aRJiOL-RcxklS7T1/divdeii.png)
 
