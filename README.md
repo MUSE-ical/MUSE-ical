@@ -4,11 +4,10 @@
 
 ![](https://file.garden/aRJiOL-RcxklS7T1/chibime.gif)
 
-<a href="https://open.spotify.com/track/7iKEZ68ziPhcTrcbRL0Pqz?si=f477d7bf8ffc47b9"><img src="https://file.garden/aRJiOL-RcxklS7T1/buttuuon.png" alt="Border 1"/></a> ![](https://file.garden/aRJiOL-RcxklS7T1/button-88x31%20(6).png)
+<a href="https://open.spotify.com/track/7iKEZ68ziPhcTrcbRL0Pqz?si=f477d7bf8ffc47b9"><img src="https://file.garden/aRJiOL-RcxklS7T1/buttuuon.png" alt="Border 1"/></a> <a href="https://kusa-nene.straw.page">
+<img src="https://file.garden/aRJiOL-RcxklS7T1/button-88x31%20(6).png" alt="Border 1"/></a>
 
 ![](https://file.garden/aRJiOL-RcxklS7T1/divdeii.png)
-
-![](https://file.garden/aRJiOL-RcxklS7T1/button-88x31%20(7).png)
 
 ![](https://file.garden/aRJiOL-RcxklS7T1/zzz.png) $\color{#f6cd9a}{\textsf{kusa / nene / rosie}}$
 
