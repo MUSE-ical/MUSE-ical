@@ -4,9 +4,11 @@
 
 ![](https://file.garden/aRJiOL-RcxklS7T1/chibime.gif)
 
-![](https://file.garden/aRJiOL-RcxklS7T1/buttuuon.png) ![](https://file.garden/aRJiOL-RcxklS7T1/button.png)
+![](https://file.garden/aRJiOL-RcxklS7T1/buttuuon.png) ![](https://file.garden/aRJiOL-RcxklS7T1/button-88x31%20(6).png)
 
 ![](https://file.garden/aRJiOL-RcxklS7T1/divdeii.png)
+
+![](https://file.garden/aRJiOL-RcxklS7T1/button-88x31%20(7).png)
 
 ![](https://file.garden/aRJiOL-RcxklS7T1/zzz.png) $\color{#f6cd9a}{\textsf{kusa / nene / rosie}}$
 
