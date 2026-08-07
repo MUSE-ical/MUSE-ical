@@ -4,6 +4,8 @@
 
 $\color{#A94B64}{\textsf{proud to say im the num 1 emunene shipr <3}}$
 
+<img width="337" height="32" alt="image" src="https://github.com/user-attachments/assets/ae693e30-3933-4f95-988c-5e783f2d3eb8" />
+
 ![](https://file.garden/aRJiOL-RcxklS7T1/chibime.gif)
 
 <a href="https://open.spotify.com/track/7iKEZ68ziPhcTrcbRL0Pqz?si=f477d7bf8ffc47b9"><img src="https://file.garden/aRJiOL-RcxklS7T1/button-88x31%20(8).png" alt="Border 1"/><a href="https://open.spotify.com/artist/2hSk8TGHXNQwIiDRYtzLdv"><img src="https://file.garden/aRJiOL-RcxklS7T1/buttuuon.png" alt="Border 1"/></a></a><a href="https://kusa-nene.straw.page"><img src="https://file.garden/aRJiOL-RcxklS7T1/button-88x31%20(6).png" alt="Border 1"/>
