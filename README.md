@@ -2,7 +2,7 @@
 
 ![](https://file.garden/aRJiOL-RcxklS7T1/wxs.png)
 
-![](https://file.garden/aRJiOL-RcxklS7T1/blank.png)<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Felipa&pause=1000&color=A94B64&width=523&lines=%22+I+was+almost+crushed+by+the+space+between+the+end+of+the+blue+sky;and+the+beginning+of+the+night+sky.;Even+though+this+vague+coral+is+dyed+a+bitter+orange%2C;If+I+sing+this+song%2C+is+it+alright%3F;If+my+wish+can't+come+true%2C;then+even+if%2C+Without+the+world+ever+even+beginning;and+without+ever+having+met+you%2C;The+coral+in+the+miniature+garden+will+dazzle+me+one+day%2C;I'll+sing+this+song+and+smile.+%22" alt="Typing SVG" /></a>
+$\color{#A94B64}{\textsf{proud to say im the num 1 emunene shipr <3}}$
 
 ![](https://file.garden/aRJiOL-RcxklS7T1/chibime.gif)
 
