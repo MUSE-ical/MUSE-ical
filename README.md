@@ -10,7 +10,7 @@
 
 ![](https://file.garden/aRJiOL-RcxklS7T1/jusi.png)
 
-$\color{#dcd7a1}{\textsf{koha / nene / rosie  }}$ ![](https://file.garden/aRJiOL-RcxklS7T1/blank.png)
+$\color{#dcd7a1}{\textsf{koha / nene / Ko-Al  }}$ ![](https://file.garden/aRJiOL-RcxklS7T1/blank.png)
 
 ![](https://file.garden/aRJiOL-RcxklS7T1/birth.png)![](https://file.garden/aRJiOL-RcxklS7T1/blank.png)
 
