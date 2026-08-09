@@ -10,7 +10,7 @@
 
 $\color{#d71c1a}{\textsf{꒰ა  }}$ $\color{#fcc7c2}{\textsf{rosie}}$ $\color{#d71c1a}{\textsf{₊ ˚ ⊹ ♡ ⊹ ˚ ₊}}$ $\color{#fcc7c2}{\textsf{any name}}$ $\color{#d71c1a}{\textsf{  ໒꒱}}$
 
-$\color{#fcc7c2}{\textsf{꒰ა  }}$ $\color{#d71c1a}{\textsf{3teen}}$ $\color{#fcc7c2}{\textsf{₊ ˚ ⊹ ♡ ⊹ ˚ ₊}}$ $\color{#d71c1a}{\textsf{infp-t}}$ $\color{#fcc7c2}{\textsf{  ໒꒱}}$
+$\color{#fcc7c2}{\textsf{꒰ა  }}$ $\color{#d71c1a}{\textsf{s-active}}$ $\color{#fcc7c2}{\textsf{₊ ˚ ⊹ ♡ ⊹ ˚ ₊}}$ $\color{#d71c1a}{\textsf{infp-t}}$ $\color{#fcc7c2}{\textsf{  ໒꒱}}$
 
 more info to come soon!
 
