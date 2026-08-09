@@ -12,8 +12,12 @@
 
 $\color{#dcd7a1}{\textsf{koha / nene / Ko-Al  }}$ ![](https://file.garden/aRJiOL-RcxklS7T1/blank.png)
 
+$\color{#48a598}{\textsf{3teen -- infp-t -- fictkin }}$ ![](https://file.garden/aRJiOL-RcxklS7T1/blank.png)
+
 ![](https://file.garden/aRJiOL-RcxklS7T1/birth.png)![](https://file.garden/aRJiOL-RcxklS7T1/blank.png)
 
-$\color{#2d7f7d}{\textsf{wip!! will finish soon <33   }}$ ![](https://file.garden/aRJiOL-RcxklS7T1/blank.png)
+$\color{#2d7f7d}{\textsf{iwvec always -- s-anxiety -- nene ID }}$   
+
+$\color{#694a3e}{\textsf{dni doubles -- mostly offtab -- l8 resps }}$  
 
 ![](https://file.garden/aRJiOL-RcxklS7T1/png.png)
