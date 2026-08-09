@@ -1,23 +1,17 @@
+<div align="center">
+  
+![](https://file.garden/aRJiOL-RcxklS7T1/mizuk.gif)
 
+![](https://file.garden/aRJiOL-RcxklS7T1/--.gif)
 
-![](https://file.garden/aRJiOL-RcxklS7T1/kohane.png)
+![](https://file.garden/aRJiOL-RcxklS7T1/pinterest%20ahh%20beat.png)
 
-<div align="right">
+![](https://64.media.tumblr.com/3dc2d44db3a05ac6953ea9fdf16ed1d0/876b5f67c77e33be-4e/s400x600/ce0514ba84b5301ec4bb0a5455113bf0e48d58a4.gifv)
 
-![](https://file.garden/aRJiOL-RcxklS7T1/chieihie.png)
+$\color{#d71c1a}{\textsf{꒰ა  }}$ $\color{#fcc7c2}{\textsf{rosie}}$ $\color{#d71c1a}{\textsf{₊ ˚ ⊹ ♡ ⊹ ˚ ₊}}$ $\color{#fcc7c2}{\textsf{any name}}$ $\color{#d71c1a}{\textsf{  ໒꒱}}$
 
-![](https://64.media.tumblr.com/8855b0769ed5c87475f71e124a1aab9d/eb5ed055bc6e3687-6f/s400x600/f0f6f443e482fe3cd9b37478212b53678bcc59a6.webp)
+$\color{#fcc7c2}{\textsf{꒰ა  }}$ $\color{#d71c1a}{\textsf{3teen}}$ $\color{#fcc7c2}{\textsf{₊ ˚ ⊹ ♡ ⊹ ˚ ₊}}$ $\color{#d71c1a}{\textsf{infp-t}}$ $\color{#fcc7c2}{\textsf{  ໒꒱}}$
 
-![](https://file.garden/aRJiOL-RcxklS7T1/jusi.png)
+more info to come soon!
 
-$\color{#dcd7a1}{\textsf{koha / nene / Ko-Al  }}$ ![](https://file.garden/aRJiOL-RcxklS7T1/blank.png)
-
-$\color{#48a598}{\textsf{3teen -- infp-t -- fictkin }}$ ![](https://file.garden/aRJiOL-RcxklS7T1/blank.png)
-
-![](https://file.garden/aRJiOL-RcxklS7T1/birth.png)![](https://file.garden/aRJiOL-RcxklS7T1/blank.png)
-
-$\color{#2d7f7d}{\textsf{iwvec always -- s-anxiety -- nene ID}}$    
-
-$\color{#694a3e}{\textsf{dni doubles -- mostly offtab -- l8 resps }}$   
-
-![](https://file.garden/aRJiOL-RcxklS7T1/png.png)
+![](https://64.media.tumblr.com/0106db2f27f9d711215cd97604303913/876b5f67c77e33be-b3/s400x600/a04b581ed768f9d99f7cc49c4e6ed5118b3eb26f.pnj)
