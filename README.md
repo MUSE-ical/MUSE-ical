@@ -21,6 +21,6 @@ $\color{#fcc7c2}{\textsf{꒰ა  }}$ $\color{#d71c1a}{\textsf{s-active}}$ $\colo
 
 $\color{#d71c1a}{\textsf{₊˚⊹♡────・┆✦ʚ♡ɞ✦┆・────♡⊹˚₊}}$
 
-$\color{#d71c1a}{\textsf{꒰ა  }}$ $\color{#fcc7c2}{\textsf{mizuki id}}$ $\color{#d71c1a}{\textsf{₊ ˚ ⊹ ♡ ⊹ ˚ ₊}}$ $\color{#fcc7c2}{\textsf{doubles iwec}}$ $\color{#d71c1a}{\textsf{  ໒꒱}}$
+$\color{#d71c1a}{\textsf{꒰ა  }}$ $\color{#fcc7c2}{\textsf{mizuki kin}}$ $\color{#d71c1a}{\textsf{₊ ˚ ⊹ ♡ ⊹ ˚ ₊}}$ $\color{#fcc7c2}{\textsf{doubles iwec}}$ $\color{#d71c1a}{\textsf{  ໒꒱}}$
 
 ![](https://64.media.tumblr.com/0106db2f27f9d711215cd97604303913/876b5f67c77e33be-b3/s400x600/a04b581ed768f9d99f7cc49c4e6ed5118b3eb26f.pnj)
