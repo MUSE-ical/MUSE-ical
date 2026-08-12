@@ -6,7 +6,7 @@
 
   $\color{#fc8805}{\textsf{pinkie pie kin, yatta kin an poob kin!! doubles idm!}}$
 
-  $\color{#fc1d05}{\textsf{only chatty if ur in my party!! 🥳🥳}}$
+  $\color{#fc1d05}{\textsf{only chatty if ur in lazys party!! 🥳🥳}}$
 
   ![](https://64.media.tumblr.com/f001b95b87deb5f3db34067484004b41/7c389a32716fd563-7d/s400x600/ca425bb14b9893d80eee3c31fa83e2961f226f6f.pnj)
 
