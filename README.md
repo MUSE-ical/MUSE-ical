@@ -4,7 +4,7 @@
 
   ![](https://64.media.tumblr.com/3fbb91881ce27af5f43315f5bdcb5c2f/6f4c7bc283dcf3a7-d9/s75x75_c1/cc212474e697dce9f38b60f85e58cfd25785b87f.gifv) $\color{#fcd505}{\textsf{kori ; koi ; yatta! certified gamer!!}}$
 
-  $\color{#fc8805}{\textsf{pinkie pie kin, yatta kin an poob kin!! doubles idm!}}$
+  $\color{#fc8805}{\textsf{check prns.cc for my kins!! idm doubles tho!}}$
 
   $\color{#fc1d05}{\textsf{only chatty if ur in lazys party!! 🥳🥳}}$
 
