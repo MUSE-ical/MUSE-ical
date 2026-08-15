@@ -6,7 +6,7 @@
 
 ![](https://64.media.tumblr.com/d2cea515237b646f7d39bdb1a5acf9df/bd2c07e98ea9bf52-87/s400x600/ce1f2aeb01cf9797c23b56410fa68df98e45964b.pnj)
 
-HUGE wip now that i have motivation
+HUGE wip,, will be finished whenever
 
 ![](https://64.media.tumblr.com/252dd494e5b2ed5ced70cba8f1948fe7/bffbd2ab6e02ef27-a2/s400x600/f282d6b94101f3252887a064a6f706d073f59c78.pnj)
 
