@@ -9,4 +9,4 @@
 
 ![](https://64.media.tumblr.com/e662031d64cb68953cfa05a2beeced0f/779aa251fd339498-96/s2048x3072/37aacaa9369ddc7a3f5205efdda68142bfb4c1a0.pnj)
 
-# [Atabook](https://muse-ical.atabook.org/)　 $\color{#e5c6ce}{\textsf{ʚɞ ⁺˖ ⸝⸝}}$ 　[Prns.cc](https://pronouns.cc/@MUSE-ical)　 $\color{#be8598}{\textsf{ʚɞ ⁺˖ ⸝⸝}}$ 　[S.p](under/construction)
+# [Atabook](https://muse-ical.atabook.org/)　 $\color{#e5c6ce}{\textsf{ʚɞ ⁺˖ ⸝⸝}}$ 　[Prns.cc](https://pronouns.cc/@MUSE-ical)　 $\color{#be8598}{\textsf{ʚɞ ⁺˖ ⸝⸝}}$ 　[S.p](yoink.org/under/construction)
